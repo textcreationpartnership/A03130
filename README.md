@@ -32,9 +32,11 @@ This keyboarded and encoded edition of the
 ##Content Summary##
 
 #####Body#####
-A ballad reioycinge the sodaine fall, of rebels that thought to deuower vs all1570Approx. 6 KB of XM
+
+1. A Ballad reioyſinge the ſodaine fall,Of Rebels that thought to deuower vs all.
+
 #####Back#####
-A ballad reioycinge the sodaine fall, of rebels that thought to deuower vs all1570Approx. 6 KB of XM
+Imprinted at London, in Fleeteſtreete, by William How, for Henry Kirkham, and are to be ſolde at his
 **Types of content**
 
   * There are 118 **verse** lines!
